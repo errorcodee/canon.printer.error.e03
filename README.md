@@ -11,4 +11,4 @@ In this blog, we are going to cover in detail the things that you need to know a
 
 ## Canon Printer Error E03 - Help
 
-If you are facing this error then you have come to the right place and we will always be available to help you. To fix this error you click here - Canon Printer Error E03 . 
+If you are facing this error then you have come to the right place and we will always be available to help you. To fix this error you click here - **[Cánón Printer Error E03](https://computersolve.com/canon-printer-error-e03/)**. 
